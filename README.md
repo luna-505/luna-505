@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Just busy working and building 🔨⋆｡°✩♬ ♪
+Learning and building 🔨⋆｡°✩♬ ♪
